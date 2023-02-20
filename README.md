@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @yakserr
-- 👀 I’m NOT interested
+- 👀 I’m interested
