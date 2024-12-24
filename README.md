@@ -1,1 +1,1 @@
-I am excited to join the community of  farmers and gardeners.
+professionally aligning divs and my life… mostly the divs.
